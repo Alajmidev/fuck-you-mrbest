@@ -1,16 +1,2 @@
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
-discord.gg/nt4 
+Family Index discord server
+https://discord.gg/yZvpgq6TNy
